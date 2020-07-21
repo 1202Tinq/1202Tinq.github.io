@@ -1,1 +1,1 @@
-# 1202tina.github.io
+# 1202Tinq.github.io
